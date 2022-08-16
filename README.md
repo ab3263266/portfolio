@@ -1,3 +1,3 @@
 ## Ariel Blum portfolio
 
-new TEXT
+LinkedIn
